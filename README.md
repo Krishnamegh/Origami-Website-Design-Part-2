@@ -1,1 +1,1 @@
-# Origami-Website-Design-Part-2
+# ORIGAMI-WEBSITE-DESIGN-PART-2
